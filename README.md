@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Joel Kugonza aka Joel-100!</h1>
-<h3 align="center">A passionate software developer from Uganda</h3>
+<h3 align="center">Software developer</h3>
 
 - 🔭 I’m currently a student at **Microverse**
 
