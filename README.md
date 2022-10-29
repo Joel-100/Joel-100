@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **joelkugonza@gmail.com**
 
-- ⚡ Fun fact **Whatever you can see physically comes from an invisible world,i want to tap more into the invisble to manifest and create!**
+- ⚡ Interesting fact **Whatever you can see physically comes from an invisible world,i want to tap more into the invisble to manifest and create!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
