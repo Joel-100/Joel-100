@@ -1,13 +1,14 @@
 <h1 align="center">Hi 👋, I'm Joel Kugonza aka Joel-100!</h1>
 <h3 align="center">Software developer(Co-creator)</h3>
 
-- 🔭 I’m currently a Free Lance Developer
+- 🔭 I’m currently a Free Lancer and currently looking to collaborate with other developers on web apps
 
 - 👨‍💻 All of my projects are available at [Joel-100](Joel-100)
 
 - 📫 How to reach me **joelkugonza@gmail.com**
 
 - ⚡ Interesting fact **I tap into the invisible to manifest and create!**
+- 🤾🏾‍♂️ Free time: :guitar: :Guitar: Music Basketball Formula 1 Gaming
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
