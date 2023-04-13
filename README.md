@@ -8,7 +8,7 @@
 - 📫 How to reach me **joelkugonza@gmail.com**
 
 - ⚡ Interesting fact **I tap into the invisible to manifest and create!**
-- 🤾🏾‍♂️ Free time: :guitar: :Guitar: Music Basketball Formula 1 Gaming
+- 🤾🏾‍♂️ Free time: :guitar: Guitar :musical_note: Music :basketball: Basketball  Formula 1 Gaming
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
