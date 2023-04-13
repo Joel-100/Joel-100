@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Joel Kugonza aka Joel-100!</h1>
 <h3 align="center">Software developer(Co-creator)</h3>
 
-- 🔭 I’m currently a student at **Microverse**
+- 🔭 I’m currently a Free Lance Developer
 
 - 👨‍💻 All of my projects are available at [Joel-100](Joel-100)
 
